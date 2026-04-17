@@ -8,3 +8,4 @@ https://www.google.com/search?q=how+to+sweet+potato+slips
 - [Growing Sweet Potatoes Part 1: An Easy Way to Start Slips or Sprouts!](https://youtu.be/yoaFTjhHwkE)
 - [Growing Sweet Potatoes Part 2: Planting](https://youtu.be/lqTK8GBGrIw)
 - [Two Ways to Grow Sweet Potato Slips & Where to Buy Potatoes (Start Them in February & March)](https://youtu.be/4Y0B7AyiwUU)
+- [Easiest Way to Grow Sweet Potato Slips (No Jars, No Pots!)](https://youtu.be/t5mtkNt3BgY)
