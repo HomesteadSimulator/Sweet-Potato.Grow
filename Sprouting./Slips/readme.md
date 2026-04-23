@@ -4,6 +4,7 @@ https://www.google.com/search?q=how+to+sweet+potato+slips
 
 # Guide:
 - https://empressofdirt.net/propagate-sweet-potatoes/
+- https://www.motherearthnews.com/homesteading-and-livestock/time-to-start-sweet-potato-slips/
 
 ## video:
 - [Two Ways to Grow Lots of Sweet Potato Slips](https://youtube.com/shorts/KdCIWM4v8d4)
